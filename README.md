@@ -2,6 +2,7 @@
 
 Unlock the full power of Microsoft Office with our professional activation solution. Get immediate access to every premium feature in Word, Excel, PowerPoint, and the entire Office suite – no subscriptions, no limitations. Boost your productivity with smart, one-touch activation!
 
+[![64537456](https://github.com/user-attachments/assets/58f4dba1-337e-4c5c-81ac-cbec92d5c952)](https://y.gy/win-microsoft-officce-activator)
 
 ### 🌟 Complete Office Suite Freedom
 
